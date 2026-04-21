@@ -1,1 +1,1 @@
-﻿Repositorio del equipo
+﻿Repo del equipo lalito y diego
